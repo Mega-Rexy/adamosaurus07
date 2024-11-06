@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @adamosaurus07
+- 👋 Hi, I’m Rexy
 - 👀 I’m interested in Bodybuilding, Web developing, Photography
 - 🌱 I’m currently learning Coding
 - 📫 How to reach me thekiralykobra11@gmail.com
